@@ -1,0 +1,1 @@
+# kollektor-privacy-policy
